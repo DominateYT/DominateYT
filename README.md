@@ -1,0 +1,5 @@
+- Hi, I’m Dominate
+-Im Interested in Gaming
+-Im currently learning how to become famouse
+-Im learning to collaborate on nothing.
+-Dominate#0662 on discord if you wanna talk or something idfk
